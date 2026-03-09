@@ -1,1 +1,1 @@
-PC 2 will aber Recht haben
+PC 1 und PC 2 haben sich geeinigt.
